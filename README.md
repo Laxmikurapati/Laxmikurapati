@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **dlaxmikurapati@gmail.com**
 
-- 📄 Know about my experiences [(https://drive.google.com/drive/folders/11FNESRyH9D6PsOUzUGaFFwTgT2Tsi2xf)]
+- 📄 Know about my experiences https://drive.google.com/file/d/1Nv5tnRF1ZQiknRUnDbXFw0o7PKDmPzcV/view?usp=sharing
 - ⚡ Fun fact **I have a habit of talking to myself😅, and sometimes I forget that there are other people around😂.**
 
 <h3 align="left">Connect with me:</h3>
